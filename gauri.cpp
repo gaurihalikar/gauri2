@@ -1,4 +1,5 @@
 hii gauri here
 from cummins
 computer engineering
-selfieeholic
+love to meditate
+love to play
